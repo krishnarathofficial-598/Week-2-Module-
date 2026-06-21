@@ -1,2 +1,2 @@
-# Week-2-Module-
-module is given by our college by placement and training group hence I have done that and the pdf is linked in my repository 
+# Week-2-Module
+i have submitted this pdf from my phone in github so if there is any mistake please understand the concern 
